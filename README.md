@@ -1,3 +1,3 @@
 # class01
 
-jhjkhjkh
+Всем привет!
